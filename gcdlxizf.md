@@ -50,23 +50,23 @@
 
 <h3>四大证券报头版头条内容精华摘要_2026年4月9日_财经新闻</h3>
 
-<p><code><a href='http://www.movie.mzdov.cn/kongbu/95264.htm'>http://www.movie.mzdov.cn/kongbu/95264.htm</a></code></p>
+<p><code>http://www.movie.mzdov.cn/kongbu/95264.htm</code></p>
 
 <h3>国家国防科技工业局党组成员、副局长卞志刚被查</h3>
 
-<p><code><a href='http://www.play.kceoo.cn/kongbu/74881.htm'>http://www.play.kceoo.cn/kongbu/74881.htm</a></code></p>
+<p><code>http://www.play.kceoo.cn/kongbu/74881.htm</code></p>
 
 <h3>共议水生态环境保护 第八期环境新闻茶座举办</h3>
 
-<p><code><a href='http://www.play.kceoo.cn/kongbu/77080.htm'>http://www.play.kceoo.cn/kongbu/77080.htm</a></code></p>
+<p><code>http://www.play.kceoo.cn/kongbu/77080.htm</code></p>
 
 <h3>国家发展改革委安排1亿元中央预算内投资 支持广西台风灾害灾后应急恢复</h3>
 
-<p><code><a href='http://www.movie.mzdov.cn/kongbu/66352.htm'>http://www.movie.mzdov.cn/kongbu/66352.htm</a></code></p>
+<p><code>http://www.movie.mzdov.cn/kongbu/66352.htm</code></p>
 
 <h3>暴雨大暴雨区域将转移，凶悍的龙舟水之后“暴力”梅雨接力来袭</h3>
 
-<p><code><a href='http://www.movie.kceoo.cn/aiqing/57306.htm'>http://www.movie.kceoo.cn/aiqing/57306.htm</a></code></p>
+<p><code>http://www.movie.kceoo.cn/aiqing/57306.htm</code></p>
 
 <p>内容根据现有新闻资料整理，具体信息以相关部门和权威媒体发布为准。</p>
 
@@ -74,13 +74,13 @@
 
 <h3>多地严控银行、消金助贷业务，增速不得超过自营贷款？一线：并非统一要求</h3>
 
-<p><code><a href='http://www.movie.kceoo.cn/sitemap_13419.xml'>http://www.movie.kceoo.cn/sitemap_13419.xml</a></code></p>
+<p><code>http://www.movie.kceoo.cn/sitemap_13419.xml</code></p>
 
 <h3>陈仲祺：台湾微短剧产业链尚存空白 两岸合作有望开拓新赛道</h3>
 
-<p><code><a href='http://www.movie.hengshemaoyi.cn/sitemap_96412.xml'>http://www.movie.hengshemaoyi.cn/sitemap_96412.xml</a></code></p>
+<p><code>http://www.movie.hengshemaoyi.cn/sitemap_96412.xml</code></p>
 
 <h3>一季度广东各级消委会为消费者挽回经济损失1.02亿元</h3>
 
-<p><code><a href='http://www.movie.mzdov.cn/sitemap_97068.xml'>http://www.movie.mzdov.cn/sitemap_97068.xml</a></code></p>
+<p><code>http://www.movie.mzdov.cn/sitemap_97068.xml</code></p>
 
